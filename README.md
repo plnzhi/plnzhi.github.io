@@ -1,1 +1,1 @@
-plnz.net
+www.plnz.net
